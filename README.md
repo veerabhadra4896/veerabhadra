@@ -1,2 +1,0 @@
-# veerabhadra
-Portfolio
